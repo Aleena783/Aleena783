@@ -69,4 +69,4 @@ Git Workflows
 
 🔗 LinkedIn: https://www.linkedin.com/in/aleena-cb-a0922632a/  
 
-🌐 Portfolio: https://yourportfolio.com
+🌐 Portfolio: https://aleena783.github.io/portfolio/
