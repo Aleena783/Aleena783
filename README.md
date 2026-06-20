@@ -66,8 +66,7 @@ Git Workflows
 ## 📫 Connect With Me
 
 📧 aleenabiju23420@gmail.com  
-📍 Thrissur, Kerala  
 
----
+🔗 LinkedIn: https://www.linkedin.com/in/aleena-cb-a0922632a/  
 
-⭐ Thanks for visiting my profile
+🌐 Portfolio: https://yourportfolio.com
